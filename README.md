@@ -1,1 +1,1 @@
-# Deen-Dayal-Upadaya-Grameen-Kaushalya-Yojana-DDU-GKY-
+# DDU-GKY-The Ministry of Rural Devolopment of India
